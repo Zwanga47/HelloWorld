@@ -7,3 +7,6 @@ I really love working in tech. Specifically, I love being in a position where I 
 
 ## My Hobbies
 One of my favorite things to do is to watch Sci-Fi movies and Series - even if I can't do those things in life the feeling is magic enough for me 😄 
+
+## My Favorite Books
+I absolutely love self-improving books.
